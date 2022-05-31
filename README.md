@@ -1,6 +1,5 @@
 This is Moycat, a creature provided "AS IS" without any warranty.
 
-👋 · ☀️ · 🌈 · ☁️ · 🐱 · 🐳 · 🔥
+Contact me via [Email](mailto:i@moy.cat) or [Telegram](https://t.me/moycat) 😋
 
-- Telegram: [@moycat](https://t.me/moycat)
-- Telegram Channel: [@moycat_official](https://t.me/moycat_official)
+👋 · ☀️ · 🌈 · ☁️ · 🐱 · 🐳 · 🔥
